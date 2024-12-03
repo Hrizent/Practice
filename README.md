@@ -13,4 +13,4 @@ for Tsaregorodtsev
 [Python](https://www.python.org/)
 [Google Colab](https://colab.research.google.com/)
 
-![cho zirish](https://cdn.donmai.us/original/34/3d/__minakami_mai_nichijou_drawn_by_ratqng__343dd3fc470c10bc74fa5310d25ba006.mp4)
+![cho zirish](https://i.pinimg.com/originals/f5/7f/7c/f57f7c6de810a272523cb8066f31f47a.gif)
