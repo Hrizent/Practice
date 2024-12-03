@@ -13,4 +13,4 @@ for Tsaregorodtsev
 [Python](https://www.python.org/)
 [Google Colab](https://colab.research.google.com/)
 
-![cho zirish](https://betabooru.donmai.us/posts/8512434?q=prasetyoadii22)
+![cho zirish](https://cdn.donmai.us/sample/c4/e7/__kagamihara_nadeshiko_yurucamp_drawn_by_prasetyoadii22__sample-c4e70f8a913348bb9e10290b6d04fa33.jpg)
