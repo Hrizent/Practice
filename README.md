@@ -13,4 +13,4 @@ for Tsaregorodtsev
 [Python](https://www.python.org/)
 [Google Colab](https://colab.research.google.com/)
 
-[](https://betabooru.donmai.us/posts/8512434?q=prasetyoadii22)
+![cho zirish](https://betabooru.donmai.us/posts/8512434?q=prasetyoadii22)
